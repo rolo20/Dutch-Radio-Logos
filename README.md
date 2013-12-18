@@ -1,4 +1,4 @@
-Dutch-Radio-Logos
+Dutch Radio Channel Logo's
 =================
 
-Logo's for dutch radio channes
+Logo's for Dutch radio channes
